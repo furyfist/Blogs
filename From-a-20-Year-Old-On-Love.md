@@ -9,7 +9,7 @@ Don’t try to use your intellect to figure it out — you won’t. As soon as y
 
 **The truth comes in the form of a feeling.**
 
-You don’t need any reason to love someone. When I asked my friend why he loves his girlfriend, he replied with so many things like, “She is cute, caring, calls me all the time,” etc. But my point is — why do you need a reason to love someone? Don’t you think love is a feeling that can never be described in words?
+You don’t need any reason to love someone. When I asked my friend why he loves his girlfriend, he replied with so many things like, “She is cute, caring, calls me all the time,” etc. But my point is — why do you need a reason to love someone? **Don’t you think love is a feeling that can never be described in words?**
 
 Ask yourself: why do you love your mother?  
 Do you love her because she makes tiffin for you, cleans your room, or washes your clothes? No, right? You don’t have any reason for it. Whenever she is around, you feel good; her presence is more than enough to love her.
@@ -18,5 +18,6 @@ I might be completely wrong, but I feel all the answers lie deep inside our soul
 This is not all about love; this is about everything.
 
 I might be completely wrong and make no sense. If so, let me know your take on this, as you might see a different side of the world that I can’t see right now with my four eyes. After all, I’m only 20 and just starting to understand things.
+
 
 Thanks for reading.
